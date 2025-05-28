@@ -1,0 +1,1 @@
+All rights reserved by Sworchihno Ltd, 2025.
